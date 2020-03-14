@@ -3,4 +3,4 @@ just another repository
 
 
 Hi everyone, 
-getting into tech industry was the best decision ever. Though, am have lots of challenges now, but i know i can never give up.
+getting into tech industry was the best decision ever. Though, am having lots of challenges now, but IMPOSSIBILITY is a word that i had buried a long time ago.
